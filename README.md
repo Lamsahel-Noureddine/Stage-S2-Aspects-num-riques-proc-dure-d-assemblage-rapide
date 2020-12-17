@@ -1,0 +1,1 @@
+# Stage-S2-Aspects-num-riques-proc-dure-d-assemblage-rapide
